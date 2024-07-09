@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on **_MEGA SUPER-DUPER PROJECT_**
 - 🌱 I’m currently learning *managing people*
-- 👯 I’m looking to collaborate on *_Apple_*
+- 👯 I’m looking to collaborate on nothing
 - 🤔 I’m looking for help with _teacher_
 - 💬 Ask me about in my telegram @Dark_Master_AI
 - 📫 How to reach me: you can also in my telegram @Dark_Master_AI
